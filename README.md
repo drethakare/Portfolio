@@ -28,6 +28,6 @@ Also skilled in **branding**, **social media marketing**, and **campaign optimiz
 
 ## 📬 Connect With Me  
 - ✉️ **Email:** drethakare@gmail.com
-- 🔗 **LinkedIn:** (https://www.linkedin.com/in/dattatray-thakare-b41b93362/)
+- 🔗 **LinkedIn:** (https://www.linkedin.com/in/dattatray-thakare1/)
   
 ---
